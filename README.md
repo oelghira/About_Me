@@ -13,3 +13,6 @@ When considering a new position I look for 3 things:
 1)	A challenging opportunity to keep exploring and learning new things   
 2)	A collaborative team with diversity of thought and background  
 3)	The ability for my work to make a real positive impact for the business and its customers  
+
+### Let's connect!
+https://www.linkedin.com/in/omar-el-ghirani-2a5b0633/
