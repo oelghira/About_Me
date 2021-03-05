@@ -12,4 +12,4 @@ Through out my time as a professional in analytics, I’ve been focused on what 
 When considering a new position I look for 3 things:  
 1)	A challenging opportunity to keep exploring and learning new things   
 2)	A collaborative team with diversity of thought and background  
-3)	The ability for my work to make real positive impact for the business and its customers  
+3)	The ability for my work to make a real positive impact for the business and its customers  
